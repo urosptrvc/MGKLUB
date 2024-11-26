@@ -1,4 +1,3 @@
-Harmony Life
-Lekarska ordinacija opste medicine
+MgKlub - Prerada mesa
 
-https://harmonylifeplus.com/
+https://mgklub.rs/
